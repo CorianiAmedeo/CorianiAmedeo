@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CorianiAmedeo
+- 👀 I’m interested in cars, hmi, Ui, design.
+- 🌱 I’m currently learning.
